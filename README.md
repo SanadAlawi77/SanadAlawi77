@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @SanadAlawi77
 - 👀 I’m interested in Artificial Intelligence
 - 🌱 I’m currently learning AI
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on learning more,or job oppurtonities
 - 📫 How to reach me , INSTAGRAM:sanadabdelrahmanalawi,OR GMAIL:sanadalawi77@gmail.com
 
 <!---
